@@ -1,3 +1,5 @@
 # Demo-2-
 
-Banglore is beautiful, but chaotic
+Bengaluru is beautiful, but chaotic
+
+I love it here, but hate the traffic sh*t
